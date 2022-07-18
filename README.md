@@ -2,7 +2,7 @@
 - 👀 I’m interested in Technology 
 - 🌱 I’m currently in school
 - 📫 How to reach me  Reach me by email:ropejay37@gmail.com
-- 💕🥗My favourite food is chiken koma 1 🌶️(peper)
+- 💕🥗My favourite food is chiken koma 1 🌶️(pepper)
 
 <!---
 Errynrope/Errynrope is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
