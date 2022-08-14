@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Errynrope
 - 👀 I’m interested in Technology 
-- 🌱 I’m currently in school
+- 🌱 I’m currently in school (uhhh)
 - 📫 How to reach me  Reach me by email:ropejay37@gmail.com
 - 💕🥗My favourite food is chiken koma 1 🌶️(pepper)
 
